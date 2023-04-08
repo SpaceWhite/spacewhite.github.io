@@ -43,7 +43,6 @@ the bread absorb too much water, so you need to mix it with a little bit of wate
 and then drain it with collander and will get the starch liquid which is really gulpy
 put the starch liquid into the pot again and this time mix it with 250ml of liquid and mix it with agar.
 and then pour it to the petri dish.
-![img](IMG_0708.jpg)
 ![img](IMG_0709.jpg)
 ![img](IMG_0710.jpg)
 ![img](IMG_0711.jpg)
